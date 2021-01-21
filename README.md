@@ -1,5 +1,5 @@
 
-### HorribleProgram 🚬 🚬 🚬 🚬 🚬 🚬 🚬 🚬
+### HorribleProgram Anonymous GitHub.
 
 Just ur average guy, :broken_heart:	
 
