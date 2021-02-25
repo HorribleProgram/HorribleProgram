@@ -3,5 +3,5 @@
 
 Just ur average guy, :broken_heart:	
 
-> _Call me and/or beep me, if you wanna reach me._ 
-> -- Wade
+> _Still no Luck, but oh well, I still try even though I know I'm going to fail._ 
+> -- RIP Juice WRLD, Avicii, XXX, Duck, Big L, Biggie, 
